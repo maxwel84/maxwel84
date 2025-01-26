@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Maxwel 😁 ![image](https://github.com/user-attachments/assets/53933915-f6cb-40e2-92cf-153c51fd24e7)
+## Bem-vindo(a) ao perfil do Maxwel 😁 ![image](https://github.com/user-attachments/assets/f392c7a3-0374-4a22-85b2-97de26f61537)
 
 
  <div>
